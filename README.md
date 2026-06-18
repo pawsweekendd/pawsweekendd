@@ -10,3 +10,6 @@
   [✦ ata](https://paletteneka.atabook.org/) ⋆˚꩜｡  [✦ sp](https://pawsweekendd.straw.page/) ⋆˚꩜｡  [✦ shared rentry](https://rentry.co/our-stage) ⋆˚꩜｡  [✦ main rentry](https://rentry.co/cheesecakedotcakey)
 
 
+
+hi hi ask me for cuddle when i am with my friend c+h encourage please do!!
+<br> w2i unless my party + friend ^w^
