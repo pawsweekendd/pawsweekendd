@@ -15,7 +15,7 @@ u can talk to me and bmf everytimes i am here!!
 i might being dry but if you can talk to me with my dry texts then lets keep talking TT
 
 w2i me anytimes when i am with my gang these stink of gay [egg](https://github.com/ban4na-om3lette) [QUACK/j](https://github.com/QuexHanim) [kanadelen](https://github.com/rengkuwq) i love u chud🤮🤮
- ## i am socially awkward  soo
+ ## <img src="https://files.catbox.moe/l1bdew.gif"> i am socially awkward  soo
  C+H are encouraged if you would like to do it then do
 
  idm how many times you come up to me and cuddle because i like it ^_°
@@ -33,4 +33,7 @@ tsuzuki-ka utau . vocaloid, Minecraftarg, fnaf , pjsk
 
 ask me for the fandom and interest i also like utaite eve , mafumafu, ivudot, sou , ado
 
-## i block freely ok if you making unfunny jokes like epstein and diddy and more 
+
+## btw if u wanna take inspo of my skin u can at least u credit me or told me idm
+
+<img src="https://files.catbox.moe/5pldc4.gif"> <img src="https://files.catbox.moe/fw5unr.png"> <img src="https://files.catbox.moe/fyf1zk.gif"> <img src="https://files.catbox.moe/43rm0v.png"> <img src="https://files.catbox.moe/u67iev.png"> 
