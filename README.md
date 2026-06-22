@@ -23,9 +23,6 @@ w2i me anytimes when i am with my gang these stink of gay [egg](https://github.c
 if you wanna be my friend you can !! but i dont talk at first srry
 
 i probably have late reply when i am afk or offtab
-## btw look at these dudes
-
-<img src="https://files.catbox.moe/esj42n.jpg">
 
 ## i have a lot of interest my main interest is
 
